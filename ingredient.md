@@ -1,0 +1,1 @@
+Nuts; Dried fruits; Eggs; Potatoes; Vegetables; Chicken;
